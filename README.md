@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Hamaghribi
+- 👀 I’m interested in alot of thing lol
+- 🌱 I’m currently learning programming using vs code/thonny
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me insta: ghribi_malek06
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: you will miss all the shots you dont take
